@@ -1,4 +1,4 @@
-### Hi there NIKITA MALIK HERE!!!👋
+### Hi NIKITA MALIK HERE!!!👋
 
 
 
